@@ -1,1 +1,1 @@
-github就是大学时我分担panacea 压力的东西
+github就是大学时我分担panacea 压力的东西，毕竟不能把所有鸡蛋放在一个篮子里。
