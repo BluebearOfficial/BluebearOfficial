@@ -1,6 +1,6 @@
 ![](https://count.getloli.com/get/@bluebearofficial)
 
-“**蓝**距平雪，**熊**两百斤。”（虽然蓝熊其实没有200斤那么重，因为蓝熊是矮子）
+“**蓝**距平雪，**熊**两百斤。”（虽然蓝熊其实没有200斤那么重，因为蓝熊是矮子）（蓝：blue/gloomy，熊：heavy/obese/fat）
 
 蓝熊是体育废物，800m PB 3分18秒，1000m PB 4分26秒，2000m PB 10分45秒
 
