@@ -18,7 +18,7 @@ github就是我2022年7月起分担《panacea》的 压力的东西，毕竟不�
 
 I suffer from **autism**.
 
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=BluebearOfficial&show_icons=true&bg_color=30,8000ff,0000ff&title_color=fff&text_color=fff)
+
 
 <!---
 BluebearOfficial/BluebearOfficial is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
