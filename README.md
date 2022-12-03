@@ -3,6 +3,14 @@
 
 <a href="https://996.icu"><img src="https://img.shields.io/badge/link-996.icu-red.svg" alt="996.icu" /></a>
 
+Blue bear should be optimistic.
+
+蓝熊活着的意义：meteorology pvz book
+lyrics eat PE  ammonia  背单词/地名 panacea/github  CRT与史图馆
+W值理论  (wyyの)嘉鸿
+
+
+
 “**蓝**距平雪，**熊**两百斤。”（虽然蓝熊其实没有200斤那么重，因为蓝熊是矮子）（蓝：blue/gloomy，熊：heavy/obese/fat）
 
 蓝熊的指导思想：W值理论、墨茶精神、嘉鸿-松达-原神精神、蓝熊-pvz精神
